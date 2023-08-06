@@ -20,5 +20,5 @@ Je propose aujourd'hui mes services et mets à disposition mes qualités de dév
 
 
 
-➡-------------- > 𝗪𝗪𝗪.𝗗𝗚-𝗪𝗘𝗕.𝗙𝗥 < --------------⬅
+➡-------------- > 𝗪𝗪𝗪.𝗗𝗚-𝗪𝗘𝗕.DEV < --------------⬅
 |-----> 06 09 65 52 99 / david.gabriele@outlook.fr <----| 
