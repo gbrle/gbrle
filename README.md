@@ -7,7 +7,7 @@
 
 ----------------- > 𝗔 𝗣𝗥𝗢𝗣𝗢𝗦 𝗗𝗘 𝗠𝗢𝗜 < -----------------
 
-David 35 ans. Ancien restaurateur, j'ai entrepris ma reconversion en 2018. Je m'intéresse au multimédia et au développement web depuis mes 17 ans et développe des applications web de manière 𝙖𝙪𝙩𝙤𝙙𝙞𝙙𝙖𝙘𝙩𝙚 .
+David 3è7 ans. Ancien restaurateur, j'ai entrepris ma reconversion en 2018. Je m'intéresse au multimédia et au développement web depuis mes 17 ans et développe des applications web de manière 𝙖𝙪𝙩𝙤𝙙𝙞𝙙𝙖𝙘𝙩𝙚 .
 
 Je termine ma formation au campus "Wild Code School" en 2018 et j'obtiens le titre de développeur web & mobile niveau 5 🎓.
 Une expérience professionnelle dans le domaine du RGPD, plus précisément sur le CRM de l'activité et la création de plusieurs applications web, me forme d'avantage à l'univers du web.
